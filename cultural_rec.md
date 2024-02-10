@@ -1,1 +1,1 @@
-There are no good places in Corvallis, flee while you still can.
+I recomend the book 'Otherlands' by Thomas Halliday
